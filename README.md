@@ -38,7 +38,7 @@
 
 ## Get in Touch
 
-- LinkedIn: [LinkedIn](https://www.linkedin.com/in/mariosmelikidis/)
+- LinkedIn: [Marios Melikidis](https://www.linkedin.com/in/mariosmelikidis/)
 - Email: [melikidismarios1@gmail.com](mailto:melikidismarios1@gmail.com)
 
 ## Let's Connect!
